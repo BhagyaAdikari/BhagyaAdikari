@@ -1,3 +1,6 @@
+![freepik-export-20241211065058kVvL](https://github.com/user-attachments/assets/a71e54f6-41bd-4685-bf92-06b4f8852af3)
+
+
 - 👋 Hi, I’m @BhagyaAdikari
 - 👀 I’m interested in programming
 - 🌱 I’m currently learning software enginnering
