@@ -1,4 +1,4 @@
-![freepik-export-20241211065058kVvL](https://github.com/user-attachments/assets/a71e54f6-41bd-4685-bf92-06b4f8852af3)
+![freepik-export-20241211065552K16T](https://github.com/user-attachments/assets/7eac52b9-024a-4871-907d-ac3b8bd97eb7)
 
 
 - 👋 Hi, I’m @BhagyaAdikari
