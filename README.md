@@ -2,11 +2,17 @@
 
 
 - 👋 Hi, I’m @BhagyaAdikari
+- 
 - 👀 I’m interested in programming
+- 
 - 🌱 I’m currently learning software enginnering
+- 
 - 💞️ I’m looking to collaborate on coding projects
+- 
 - 📫 How to reach me kumarini.adikari@gmail.com
+- 
 - 😄 Pronouns: she/her/hers
+- 
 - ⚡ Fun fact: I love to be perfect even perfection doesn't exsits.
 
 <!---
